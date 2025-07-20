@@ -1,1 +1,1 @@
-https://jubayeralfaruk.github.io/g3-architects-resources/
+[Live Link](https://jubayeralfaruk.github.io/g3-architects-resources/)
