@@ -1,0 +1,1 @@
+https://jubayeralfaruk.github.io/g3-architects-resources/
